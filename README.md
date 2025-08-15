@@ -2,6 +2,7 @@
 
 MRIDUL SINGHAL
 +91 9953449225 | mridulsinghal190@gmail.com | linked.com/in/mridul-singhal5 |https://github.com/Mridul006
+
 Objective
 Enthusiastic and dedicated CSE-AIML undergraduate student with a strong academic foundation and a keen interest in Artificial Intelligence and Machine Learning. Seeking opportunities to apply technical skills and contribute to innovative projects in a dynamic learning environment.
 ________________________________________
